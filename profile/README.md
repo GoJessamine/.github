@@ -21,5 +21,5 @@ It shouldn't have ever happened, but Jessamine county got made "IT" in this rich
 * K-Mart (clock number 142 at store 9559)
 * McLane Cumberland employee 
 * Many summers at Pepperhill
-* Cruised the McDonald's - Hardee's circuit too many times 
-            
+* Cruised the McDonald's - Hardee's circuit too many times
+* Likely one of the only few people still living in the original 1993 JCHS yearbook due to [TAG](https://github.com/TAGIsNoGame/TAG)
