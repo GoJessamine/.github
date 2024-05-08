@@ -20,6 +20,6 @@ It shouldn't have ever happened, but Jessamine county got made "IT" in this rich
           - Because I skipped that day, dropped out a little bit later
 * K-Mart (clock number 142 at store 9559)
 * McLane Cumberland employee 
-* Pepperhill in the summer
+* Many summers at Pepperhill
 * Cruised the McDonald's - Hardee's circuit too many times 
             
