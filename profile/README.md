@@ -6,4 +6,4 @@ For us true Jessamine county folks, homecoming or the Jamboree (if it's even rem
 
 It shouldn't have ever happened, but Jessamine county got made "IT" in this rich man's game of TAG.
 
-[Learn about TAG](https://github.com/TAGIsNoGame/TAG) or [read what a homeboy](https://github.com/TAGIsNoGame/TAG) says about it to the folks playing the rich man's game night and day in and around his apartment.
+[Learn about TAG](https://github.com/TAGIsNoGame/TAG) or [read what a homeboy](https://github.com/TAGIsNoGame/TAG/tree/master/PHB33) says about it to the folks playing the rich man's game in and around his apartment night and day.
