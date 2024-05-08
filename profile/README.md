@@ -7,3 +7,19 @@ For us true Jessamine county folks, homecoming or the Jamboree (if it's even rem
 It shouldn't have ever happened, but Jessamine county got made "IT" in this rich man's game of TAG.
 
 [Learn about TAG](https://github.com/TAGIsNoGame/TAG) or [read what a homeboy](https://github.com/TAGIsNoGame/TAG/tree/master/PHB33) says about it to the folks playing the rich man's game in and around his apartment night and day.
+
+## My Jessamine Bona Fides
+* I'm Kelvin Williams
+* Grew up on Garden Park Drive (county side)
+* Went to Brookside
+* JCHS Class of 1995
+     - Football as a sophomore (until car accident)
+     - OK, so really a GED in June of 1995
+     - All the things George Braden said about me were mostly true
+     - Tornado "survivor" :)
+          - Because I skipped that day, dropped out a little bit later
+* K-Mart (clock number 142 at store 9559)
+* McLane Cumberland employee 
+* Pepperhill in the summer
+* Cruised the McDonald's - Hardee's circuit too many times 
+            
